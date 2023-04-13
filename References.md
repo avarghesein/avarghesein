@@ -6,5 +6,5 @@
 
 ## [Word Of God: Malayalam](https://thiruvachanam.in/ShowChaptersOfBook.do?b=1&t=1)
 
-## [Myself: AVarghese](https://www.facebook.com/avarghese.in)
+## [Myself: AV](https://www.facebook.com/avarghese.in)
 
