@@ -41,7 +41,7 @@
     Other improved version of the same,
     Will be presented to you;
     Say You start coding in C++, 
-    While you are still good at C).
+    While you are still good at C.
 
     Learning a language takes time.
     Consider C++ in Computers,
