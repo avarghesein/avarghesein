@@ -42,6 +42,11 @@
     Will be presented to you;
     Say You start coding in C++, 
     While you are still good at C.
+    
+    All Algorithms, Language Models,
+    Even The Artificial Intelligence,
+    Which We See today in Every Places,
+    Are working towards that Single Purpose;
 
     Learning a language takes time.
     Consider C++ in Computers,
