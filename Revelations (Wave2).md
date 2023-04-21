@@ -1,4 +1,4 @@
-## Art Of Souls - Revelation (Wave2)
+## Art Of Souls - Revelations (Wave2)
 
     The Vision Of Heavens;
     At The Sunsetting Of Earthly Life,
