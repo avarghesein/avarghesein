@@ -29,7 +29,7 @@
     Is A Concept,
     Brought Only By The Serpent,
     When it has Fallen.
-    Angels Correlates This Distinctions,
+    Angels Correlates These Distinctions,
     Better With (Philippians 2 / 7),
     And They Honor These Hierarchies.
 
