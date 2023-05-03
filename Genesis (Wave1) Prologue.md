@@ -18,6 +18,20 @@
     He Brought Forth His Offspring,
     The Angels;
     The Number Of Them is in finite;
+    
+    Lord Created All Angels,
+    Equal In Rank, Power and Essence,
+    (Genesis 1 / 27).
+    However Angels Self-organized,
+    Themselves To Hierarchies,
+    To Build The Higher Heavens.
+    The Higher Lower Distinctions,
+    Is A Concept,
+    Brought Only By The Serpent,
+    When it has Fallen.
+    Angels Correlates This Distinctions,
+    Better With (Philippians 2 / 7),
+    And They Honor These Hierarchies.
 
     The Creation Of This Physical Universe,
     Was Not In the Original Scheme Of Events,
