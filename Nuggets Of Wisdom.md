@@ -24,6 +24,10 @@
     But We like to Surf;
 <br/>
 
+    Love ME, To Know ME;
+    Know ME, To Love ME;
+<br/>
+
     The Storm has Gone Past,
     While WE were Dancing;
 <br/>
@@ -125,6 +129,10 @@
     Leave Only Your Footprints;
 <br/>
 
+    Compassion is More Important,
+    Than Information;
+<br/>
+
     Walk A Mile in someone else Shoes,
     Before We Judge/Advice.
 <br/>
@@ -144,6 +152,11 @@
     So Think A Lot, 
     Talk Little,
     Write Lesser;
+<br/>
+
+    Forecasting is an Art,
+    Like Others,
+    It has Few Masters;
 <br/>
 
     Without A Vision,
@@ -169,6 +182,17 @@
     And Experience Certainty.
 <br/>
 
+    Short Term Thinking is the Enemy Of,
+    Long Term Success;
+<br/>
+
+    YOU are Good To Go for Meaningful Stakes;
+<br/>
+
+    Think Ahead of The Crowd,
+    And Invest in What YOU know Best;
+<br/>
+
     How about Working On The Dreams Of Others,
     Who are unable to achieve it?
     How about We Help Each Other,
@@ -178,8 +202,8 @@
 
     It’s all about The Intentions Of The Heart,
     Which tells a Deed is Worthy/Not;
-    (Matthew 15/18)
+    (Matthew 15 / 18)
     Even bible Justifies Actions with Good Intentions,
     But Condemned by Humans
-    2 Samuel 6 / 14
+    (2 Samuel 6 / 14)
 <br/>
