@@ -3,7 +3,7 @@
     Peace and Happiness;
     He planned a Grant Scheme Of Events,
     To Exalt The State Of,
-    Infinite Peace, Happiness and Heavenly Rest;
+    Infinite Peace, Love, Happiness and Heavenly Rest;
     (Genesis 2/2)
     So To Be in The 7th Heaven; 
 
@@ -11,7 +11,8 @@
     He Took The Form Of Trinity,
     In The Beginning,
     The Father, Son and Holy Ghost,
-    To Have His Offspring in His Image;
+    To Manifest The Greatest Form Of Love
+    And To Have His Offsprings in His Image;
     (Genesis 1/27)
 
     With His Impeccable Wisdom,
