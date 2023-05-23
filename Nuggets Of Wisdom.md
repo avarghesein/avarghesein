@@ -20,6 +20,10 @@
     People Reflects Themselves;
 <br/>
 
+    Things are Closer,
+    Than They Appear in The Mirror;
+<br/>
+
     Waves are High,
     But We like to Surf;
 <br/>
@@ -129,6 +133,10 @@
     Leave Only Your Footprints;
 <br/>
 
+    Vibrant Wings Magnificent,
+    Your Presence So Fragrant;
+<br/>
+
     Compassion is More Important,
     Than Information;
 <br/>
@@ -187,6 +195,10 @@
 <br/>
 
     YOU are Good To Go for Meaningful Stakes;
+<br/>
+
+    Sometimes You’ve To Experience The Worst,
+    To Appreciate The Best;
 <br/>
 
     Think Ahead of The Crowd,
