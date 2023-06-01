@@ -32,8 +32,20 @@
     Know ME, To Love ME;
 <br/>
 
+    Entrenched in Confidence,
+    With Our Trust So Intense;
+<br/>
+
+    In The Midst Of Our Dreams,
+    It’s The Marigolds that Blooms;
+<br/>
+
     The Storm has Gone Past,
     While WE were Dancing;
+<br/>
+
+    With Our Dreams at The Horizon,
+    Revive It With Your Vivid Imagination;
 <br/>
 
     Imagination With Intelligence,
@@ -137,6 +149,19 @@
     Your Presence So Fragrant;
 <br/>
 
+    Lights Resplendent,
+    And Colors So Fervent;
+<br/>
+
+    Life is Like a Rainbow;
+    Harnesses Our Dreams,
+    With the Bounty Of its Colors;
+<br/>
+
+    United We Prevail,
+    Let Our Boat Sail;
+<br/>
+
     Compassion is More Important,
     Than Information;
 <br/>
@@ -160,6 +185,10 @@
     So Think A Lot, 
     Talk Little,
     Write Lesser;
+<br/>
+
+    Pay Heed to the Calls,
+    Before The Moment Falls;
 <br/>
 
     Forecasting is an Art,
@@ -203,6 +232,10 @@
 
     Think Ahead of The Crowd,
     And Invest in What YOU know Best;
+<br/>
+
+    With The Glory Of Pinnacle,
+    Let’s Excel To Inspire;
 <br/>
 
     How about Working On The Dreams Of Others,
