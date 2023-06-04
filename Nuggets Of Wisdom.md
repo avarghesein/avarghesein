@@ -245,6 +245,10 @@
     For No Human is Perfect !
 <br/>
 
+    You Don’t Need To Be inordinate To Shine,
+    But Only Your SUN;
+<br/>
+
     It’s all about The Intentions Of The Heart,
     Which tells a Deed is Worthy/Not;
     (Matthew 15 / 18)
