@@ -56,6 +56,11 @@
     Not a Destination;
 <br/>
 
+    A Journey,
+    Accompanied By Your True Friend,
+    Makes The Toughest Path Shorter;
+<br/>
+
     Whatever It Takes, 
     I will Make
     My Best Memories to Live On,
@@ -221,6 +226,11 @@
 
     Short Term Thinking is the Enemy Of,
     Long Term Success;
+<br/>
+
+    Don’t Fall for Short term Benefits,
+    For It May Even Cost You,
+    The Long Term (Eternal) Fortunes;
 <br/>
 
     YOU are Good To Go for Meaningful Stakes;
