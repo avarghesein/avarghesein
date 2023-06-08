@@ -58,7 +58,8 @@
 
     A Journey,
     Accompanied By Your True Friend,
-    Makes The Toughest Path Shorter;
+    Makes The Toughest Path Shorter,
+    And The Loveliest Longer;
 <br/>
 
     Whatever It Takes, 
@@ -242,6 +243,10 @@
 
     Think Ahead of The Crowd,
     And Invest in What YOU know Best;
+<br/>
+
+    If You Can’t Do It First,
+    Then Do It Unique;
 <br/>
 
     With The Glory Of Pinnacle,
