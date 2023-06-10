@@ -249,6 +249,12 @@
     Then Do It Unique;
 <br/>
 
+    Share Your Best With JESUS,
+    (Proverbs 3/9)
+    For It Never Goes In Vain;
+    (Deuteronomy 28/8)
+<br/>
+
     With The Glory Of Pinnacle,
     Let’s Excel To Inspire;
 <br/>
