@@ -54,6 +54,13 @@
     Has been asked and Owned by The Serpent,
     As He is the One Who wants the Tests.
     (John 14 / 30)
+    
+    Lord Cognate This,
+    With an Untold Variant Of The Prodigal Son,
+    Called “The Lost Prodigal Son”,
+    Who Abuses His Eternal Fortune,
+    And Refuses To Repent,
+    Which In turn Makes Him Eternally Void;
 
     The One Agreement which was put forth By The Serpent,
     Was, No Parties (Angels/ Devils),
