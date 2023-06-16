@@ -43,6 +43,16 @@
     The same thing, The Apostles tries to convey in 1 Corinthians 15:52. "In a flash,
     in the twinkling of an eye, at the last trumpet,
     the dead will be raised Imperishable, and we will be changed"
+    
+    The Righteousness Of The Lord,
+    Has also rightfully sealed,
+    The Ultimate Fate Of Satan,
+    For its most perfidious Desires, 
+    (Isaiah 14 / 14)
+    Who will be Replaced By Three Souls,
+    Whom Dwells in Each Other;
+    And Reflects The True Image Of GOD,
+    The Holy Trinity;
 
     However that Particular Hour or Moment is only known to Our Heavenly Father (Matthew 24 / 36)
 
