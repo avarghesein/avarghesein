@@ -266,6 +266,10 @@
     For No Human is Perfect !
 <br/>
 
+    Eventually Though Not Immediate,
+    Quality Always Prevails Over Quantity;
+<br/>
+
     You Don’t Need To Be inordinate To Shine,
     But Only Your SUN;
 <br/>
