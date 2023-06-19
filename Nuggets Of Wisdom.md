@@ -62,8 +62,8 @@
     And The Loveliest Longer;
 <br/>
 
-    I have Come with YOU,
-    Hence I Should Go Home With YOU;
+    I Have Come with YOU,
+    Hence I Should Go HOME With YOU;
 <br/>
 
     Whatever It Takes, 
