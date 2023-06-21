@@ -73,11 +73,19 @@
     So Does Everyone !
 <br/>
 
-    On 7th DAY,
-    LORD Has Rested;
-    So Do I,
-    In MY Eternal Dwelling,
-    @ Infinite Peace
+    Whatever It Takes, 
+    I will Make
+    My Best Memories to Live On,
+    Not The Bad Ones.
+    So Does Everyone !
+<br/>
+
+    The DAYS in MY ETERNAL LIFE,
+    Every HOUR,
+    Every MINUTE,
+    Even Every MOMENT,
+    Is Designed by MYSELF.
+    Psalm 139 / 16
 <br/>
 
     My Life is My Story;
@@ -239,6 +247,12 @@
 <br/>
 
     YOU are Good To Go for Meaningful Stakes;
+<br/>
+
+    Don’t Forget,
+    For Every Good Thing To Happen in This World,
+    We’ve To Give A Good Fight, Against The Evil;
+    Matthew 11 / 12
 <br/>
 
     Sometimes You’ve To Experience The Worst,
