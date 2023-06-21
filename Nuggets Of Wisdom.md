@@ -73,19 +73,19 @@
     So Does Everyone !
 <br/>
 
-    Whatever It Takes, 
-    I will Make
-    My Best Memories to Live On,
-    Not The Bad Ones.
-    So Does Everyone !
-<br/>
-
     The DAYS in MY ETERNAL LIFE,
     Every HOUR,
     Every MINUTE,
     Even Every MOMENT,
     Is Designed by MYSELF.
     Psalm 139 / 16
+<br/>
+
+    On 7th DAY,
+    LORD Has Rested;
+    So Do I,
+    In MY Eternal Dwelling,
+    @ Infinite Peace
 <br/>
 
     My Life is My Story;
