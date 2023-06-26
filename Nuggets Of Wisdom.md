@@ -40,6 +40,10 @@
     It’s The Marigolds that Blooms;
 <br/>
 
+    Its Not About Perfectness, 
+    But Togetherness Brings The True Delightfulness;
+<br/>
+
     The Storm has Gone Past,
     While WE were Dancing;
 <br/>
