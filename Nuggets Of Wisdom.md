@@ -136,6 +136,11 @@
     In Season;
 <br/>
 
+    Heavens are not Far Away,
+    But it’s Just A Step Away;
+    (Luke 17 / 21)
+<br/>
+
     YOU will Find, 
     No Other Heaven,
     Than My HEART,
