@@ -274,6 +274,7 @@
 
     Focus The Entrusted,
     For Not Everything Requires Your Attention;
+    (Sirach 3 / 22)
 <br/>
 
     If You Can’t Do It First,
