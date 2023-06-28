@@ -272,6 +272,10 @@
     And Invest in What YOU know Best;
 <br/>
 
+    Focus The Entrusted,
+    For Not Everything Requires Your Attention;
+<br/>
+
     If You Can’t Do It First,
     Then Do It Unique;
 <br/>
