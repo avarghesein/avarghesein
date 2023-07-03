@@ -272,6 +272,12 @@
     And Invest in What YOU know Best;
 <br/>
 
+    Know Your True Assets;
+    Retaining Them Requires More Grace,
+    Than To Attain Them;
+    (1 Corinthians 3 / 6)
+<br/>
+
     Focus The Entrusted,
     For Not Everything Requires Your Attention;
     (Sirach 3 / 22)
