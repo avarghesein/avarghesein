@@ -101,6 +101,11 @@
     What Left Untold;
 <br/>
 
+    You Always Continue,
+    From Where You’ve Already Left Off;
+    And That is Called The Eternity;
+<br/>
+
     To Manifest MYSELF,
     I Call ME to MYSELF,
     For I AM The TWIN FLAME,
@@ -150,6 +155,10 @@
     In The New Heaven,
     YOU will Recall The PROMISE, 
     I’ve Made To YOU in Genesis;
+<br/>
+
+    A Promise Once Made, is Always A Promise;
+    (Romans 11 / 29)
 <br/>
 
     So Special is Your Heart,
