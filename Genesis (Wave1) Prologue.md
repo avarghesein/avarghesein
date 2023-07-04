@@ -54,6 +54,12 @@
     Has been asked and Owned by The Serpent,
     As He is the One Who wants the Tests.
     (John 14 / 30)
+
+    The intent is,
+    To Make The Souls Feel Themselves So Insignificant,
+    Have No Much Worth over any Other Soulless Beings,
+    So they might Succumbed to the “Sin Of Dejection”,
+    One Of the Primary Sin Against The Holy Ghost;
     
     Lord Cognate This,
     With an Untold Variant Of The Prodigal Son,
