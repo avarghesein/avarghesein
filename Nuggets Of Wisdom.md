@@ -20,6 +20,10 @@
     People Reflects Themselves;
 <br/>
 
+    The More You Respect Yourself,
+    The More It will be Reflected In Others;
+<br/>
+
     Things are Closer,
     Than They Appear in The Mirror;
 <br/>
@@ -304,6 +308,10 @@
 
     With The Glory Of Pinnacle,
     Let’s Excel To Inspire;
+<br/>
+
+    Know Your Worth,
+    And Earn Your Dignity;
 <br/>
 
     How about Working On The Dreams Of Others,
