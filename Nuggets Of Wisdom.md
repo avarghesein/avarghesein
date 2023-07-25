@@ -81,6 +81,10 @@
     So Does Everyone !
 <br/>
 
+    Powerful People Always Controls and Creates History.
+    So Be Powerful and Rewrite It for What it Ought to Be !
+<br/>
+
     The DAYS in MY ETERNAL LIFE,
     Every HOUR,
     Every MINUTE,
