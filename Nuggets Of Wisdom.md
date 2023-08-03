@@ -340,3 +340,8 @@
     But Condemned by Humans
     (2 Samuel 6 / 14)
 <br/>
+
+    Remember, No One Neither Lives nor Dies for Himself,
+    (Romans 14 / 7)
+    For We’ve to Write An Epic To Cling On;
+<br/>
