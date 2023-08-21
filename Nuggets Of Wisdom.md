@@ -114,6 +114,10 @@
     And That is Called The Eternity;
 <br/>
 
+    YOU Know Myself More Than ME,
+    For Now YOU’re More ME Than I;
+<br/>
+
     To Manifest MYSELF,
     I Call ME to MYSELF,
     For I AM The TWIN FLAME,
