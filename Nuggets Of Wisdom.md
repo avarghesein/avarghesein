@@ -289,6 +289,10 @@
     To Appreciate The Best;
 <br/>
 
+    Don’t Feel Lost,
+    For, HE has Left The Best (For YOU);
+<br/>
+
     Think Ahead of The Crowd,
     And Invest in What YOU know Best;
 <br/>
