@@ -326,6 +326,10 @@
     And Earn Your Dignity;
 <br/>
 
+    Lucky are those Who have had their Dreams;
+    Blessed, On Whom The Heavens have Dreamt About;
+<br/>
+
     How about Working On The Dreams Of Others,
     Who are unable to achieve it?
     How about We Help Each Other,
