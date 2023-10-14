@@ -349,6 +349,10 @@
     But Only Your SUN;
 <br/>
 
+    You Bought The Seven Colors Of My Life,
+    Which Shines In The Shadows On The Sun;
+<br/>
+
     It’s all about The Intentions Of The Heart,
     Which tells a Deed is Worthy/Not;
     (Matthew 15 / 18)
