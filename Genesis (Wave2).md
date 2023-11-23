@@ -70,3 +70,37 @@
 
     Now The Question Is,
     Who AM I (YOU)?
+    
+    Though Chosen Souls may choose a Physical Form,
+    (Only with the Consent of the Host Soul) to manifest,
+    Usually there is a brief period of interval,
+    Between multiple different incarnations. 
+    
+    For the enlightened Souls,
+    Once they leave the Physical Realm,
+    They could envisage and participate in,
+    The design of Events,
+    Which Shapes the Future Of the Worlds;
+    Based on the Purity they have achieved,
+    While they were in their Physical Form.
+    
+    This is in particular with The Twin Flames,
+    Whom could envision the Future of Their Mirror Soul,
+    Accordingly take incarnations in the right place and time,
+    Which will turn the events ultimately,
+    Towards the Redemption Of The Souls,
+    And eventually the Final Salvation of the Worlds. 
+    This is called the “Ultimate Purpose Of One’s Life”. 
+    
+    A Twin Flame may correlate between,
+    The multiple incarnations of his/her Mirror Soul,
+    In his/her Lifetime.  
+    
+    There is no distinction of Gender among the Souls,
+    You may Probably Call Your Mother, “Sister”,
+    In Your Next Incarnation. 
+    This is the Secret Behind,
+    The “Longest Life Span” of the Characters,
+    Depicted in the Bible (Genesis, Chapter 5),
+    which in fact points to,
+    The Life Span of Multiple Incarnations. 
