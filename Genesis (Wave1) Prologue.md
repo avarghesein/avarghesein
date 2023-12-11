@@ -47,6 +47,13 @@
     A Soul will Attain A Status Of an Angel,
     Once He Conquers the Snares Of Evil.
 
+    And The Angels Of The Pre-Universe Era,
+    Destined To Be Reborn in the Physical Realm,
+    To Vindicate Themselves;
+    For Thy Master has put forth,
+    That Perfect Example in front of Them! 
+    (Luke 6 / 40)
+
     Hence The Physical Universe has been Created;
     The Design was A Combined Effort,
     Of Both Angels and the Devils;
