@@ -170,6 +170,10 @@
     (Luke 17 / 21)
 <br/>
 
+    Skies Are Void,
+    Angels are in Our Amidst.
+<br/>
+
     YOU will Find, 
     No Other Heaven,
     Than My HEART,
