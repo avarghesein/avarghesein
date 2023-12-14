@@ -105,6 +105,11 @@
     Psalm 139 / 16
 <br/>
 
+    A Long Journey Preludes The Prevailment,
+    As Holy Saturday Dwells,
+    Twixt Good Friday's Mourn and The Easter's Dawn;
+<br/>
+
     On 7th DAY,
     LORD Has Rested;
     So Do I,
