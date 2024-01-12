@@ -34,3 +34,14 @@
     WE can Make It Happen !
     For If YOU are Willing,
     Then WE Know HE is Willing.
+
+    In Thy Divine Discovery, A Sacred Kin,
+    Oblivion, has Bowed before Your Grace Within.    
+    Found Within You, A Sanctuary Of Eternal Hymn,
+    My Soul, Untouched from The Grip Of Shadows' rim.
+    
+    Beneath Your Gaze, Death's Grasp Wanes,
+    A Sacred Haven Where Mortality's Echo Refrains.    
+    In Your Presence, Immortality's Whisper Breathes,
+    As Life in Your Embrace Eternally Weaves.
+
