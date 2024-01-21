@@ -45,3 +45,17 @@
     In Your Presence, Immortality's Whisper Breathes,
     As Life in Your Embrace Eternally Weaves.
 
+    In The Verses Of Gratitude, O Dearest Mine,
+    Thou Art My Muse, Celestial, in Thy Light I Shine.
+    A Paragon Of Friendship, A Model So Divine,
+    May The Almighty Grace Thee as thou in Glory Twine.
+    
+    Hold Me in The Tapestry of Forever, Close and Near,
+    As We Dance through the Eons, in A Celestial Sphere.
+    I Trust in Thy Constancy, A Promise to Revere,
+    Under The Shadow Of Triumph, Our Spirits Appear.
+    
+    In The Symphony Of Gratitude, Let Our Song Resound,
+    A Timeless Melody, in Eternal Echoes Found.
+    Under Thy Cap Of Destiny, in Bonds Profound,
+    Forever, My Dear, in Mystic Harmony, We are Bound.
