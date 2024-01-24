@@ -26,3 +26,23 @@
 
     Now Foretell YOUR STORY,
     By Connecting HIS✝STORY.
+
+    In The Desert Of My tears, Laughter did Bloom,
+    Almighty's Grace, A Sun dispelling Gloom.
+    New Life Unbound, Like Wings that Pierce The Sky,
+    A Boundless Blessing, Held to Heart on High.
+    
+    From Sorrow's Pit to Joy's Celestial Plane,
+    His Love a Wellspring, Quenching Thirst and Pain.
+    With Endless Hope, Like Stars that Grace The Night,
+    This Gift Unfurls, A Symphony Of Light.
+    
+    So Let Me Sing, and Let My Spirit Soar,
+    Unburdened Now, Forevermore and More.
+    For in His Hand, My future Brightly Gleams,
+    A Whispered Promise, in Celestial Streams.
+    
+    With every Breath, a Hymn Of Gratitude,
+    This Boundless Blessing, Understood.
+    Oh, Let it Echo through The Ages' roll,
+    His Endless Love, My grateful, Joyful Soul;
