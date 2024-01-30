@@ -8,6 +8,11 @@
     A Great PLAN;
 <br/>
 
+    Finding Your Life's Purpose,
+    Is Only Half Of The Journey;
+    Living It, Is Another;
+<br/>
+
     I AM The LOVE,
     You Brought LIFE to It.
 <br/>
