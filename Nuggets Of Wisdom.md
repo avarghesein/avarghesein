@@ -8,8 +8,7 @@
     A Great PLAN;
 <br/>
 
-    Finding Your Life's Purpose,
-    Is Only Half Of The Journey;
+    Finding Your Life's Purpose, Is Only Half Of The Journey;  
     Living It, Is Another;
 <br/>
 
