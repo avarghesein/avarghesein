@@ -49,10 +49,10 @@
     The Ultimate Fate Of Satan,
     For its most perfidious Desires, 
     (Isaiah 14 / 14)
-    Who will be Replaced By Three Souls,
+    Who will be Replaced By Super Souls,
     Whom Dwells in Each Other;
     And Reflects The True Image Of GOD,
-    The Holy Trinity;
+    The Extended Holy Trinity;
 
     However that Particular Hour or Moment is only known to Our Heavenly Father (Matthew 24 / 36)
 
