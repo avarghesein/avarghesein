@@ -70,7 +70,21 @@
 
     Now The Question Is,
     Who AM I (YOU)?
+
+    When The Soul is Etched or projected,
+    Into a Fixed Form Factor (Lower Realm),
+    It is termed as The Mind.    
+    For Most,
+    Their Minds may never discern The Soul,
+    When it speaks.
     
+    Those who walk in the path of spirituality,
+    Perceive The Soul as a Higher Self,
+    A Distinct Divine Presence.    
+    And Unto The One (YOU),
+    Who has been Awakened,
+    It is Thyself.
+
     Though Chosen Souls may choose a Physical Form,
     (Only with the Consent of the Host Soul) to manifest,
     Usually there is a brief period of interval,
