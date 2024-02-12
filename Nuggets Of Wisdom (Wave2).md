@@ -1,0 +1,13 @@
+## Art Of Souls - Nuggets Of Wisdom (Wave2)
+
+    Not all Scars finds a Soothing Solace,
+    Not every Dusk leads to another Sunrise.
+    And not all Roads find Dawn's Gilded Trace,
+    Nor all Tales unravel Truth's Embrace.
+  <br/>
+  
+    Yet on The Wings Of Celestial Grace,
+    We're granted another Rise.
+    Where Triumphant echoes our Destined Decree,
+    Victory's flame Guides the path We See.
+  <br/>
