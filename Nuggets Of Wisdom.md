@@ -392,3 +392,8 @@
     (Romans 14 / 7)
     For We’ve to Write An Epic To Cling On;
 <br/>
+
+    When The Sun dips low, a Solstice near,
+    In Thy Whisper, the resounding echoes I hear.
+    A Solstice Bright, as the Spirits Soar,
+    An Eververdant, Kindling Our Dreams.
