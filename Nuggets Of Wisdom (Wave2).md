@@ -11,3 +11,9 @@
     Where Triumphant echoes our Destined Decree,
     Victory's flame Guides the path We See.
   <br/>
+    
+    In each Whispered Deed, a Seed is Sown,
+    Though faint, its Echo Whispers Future's Tone.
+    Ponder deep before Your steps are Spun,
+    For every Act, A Tale is begun.
+  <br/>
