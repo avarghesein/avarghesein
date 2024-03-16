@@ -26,12 +26,12 @@
     For every Act, A Tale is begun.
   <br/>
   
-    A Promise, Once Made,
-    Is Always A Promise;
-    And It is Nothing But,
+    A Promise, Once made,
+    Is always A Promise;
+    And It is nothing but,
     Eternity and Beyond!
   <br/>
-
+  
     Seeking Kindled Souls To Mend,
     Since Old Ones into Admirers Transcend;
   <br/>
