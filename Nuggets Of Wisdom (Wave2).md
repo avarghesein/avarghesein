@@ -38,4 +38,8 @@
 
     In Time's Gentle Cadence,
     You'll recall Your former Essence.
+  <br/>  
+  
+    The Rain has Come Again,
+    While We Were Dancing;
   <br/>
