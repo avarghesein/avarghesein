@@ -43,3 +43,8 @@
     The Rain has Come Again,
     While We Were Dancing;
   <br/>
+
+    A pretty Face may bring You momentary Glory,
+    But a Good Heart always brings You,
+    The Zeal Of Eternity.
+  <br/>
