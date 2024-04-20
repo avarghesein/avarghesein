@@ -48,3 +48,8 @@
     But a Good Heart always brings You,
     The Zeal Of Eternity.
   <br/>
+  
+    Look into The Mirror,
+    Not for Who You Are,
+    But for What You Ought to be.
+  <br/>
