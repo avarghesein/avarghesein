@@ -53,3 +53,7 @@
     Not for Who You Are,
     But for What You Ought to be.
   <br/>
+  
+    Changing Your History Is;
+    Changing Your Present.
+  <br/>
