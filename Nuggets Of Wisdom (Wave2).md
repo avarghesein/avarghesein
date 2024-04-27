@@ -53,6 +53,12 @@
     Affection stays a While,
     And Love endures Forever.
   <br/>
+
+    Love, Peace, and Happiness,
+    The Seraphic pursuits Of Heaven.
+    Constantly being in them,
+    Is to Enchant Your Soul and Life into it;
+  <br/>
   
     Look into The Mirror,
     Not for Who You Are,
