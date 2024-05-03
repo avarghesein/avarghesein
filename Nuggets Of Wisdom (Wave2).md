@@ -68,6 +68,12 @@
     Changing Your History Is;
     Changing Your Present.
   <br/>
+
+    Now I Know My Name,
+    Now I Know The Way I searched,
+    The Life I sought,
+    I found Myself.
+  <br/>
   
     I was just waiting outside,
     The moment You Said Yes,
