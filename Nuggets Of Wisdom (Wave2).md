@@ -84,3 +84,8 @@
     I Changed The History,
     For I've Seen The Future;
   <br/>
+  
+    You will not find Me, Before Me,
+    You will not find Me, After Me,
+    You will find Me, Only in Me,
+    For I AM, WHO I AM;
