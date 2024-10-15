@@ -84,6 +84,10 @@
     I Changed The History,
     For I've Seen The Future;
   <br/>
+
+    See, We harvested the blessings yesterday,
+    Borne from the virtuous deeds woven today;
+  <br/>
   
     You will not find Me, Before Me,
     You will not find Me, After Me,
