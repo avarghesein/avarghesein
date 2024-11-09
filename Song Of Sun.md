@@ -46,3 +46,16 @@
     This Boundless Blessing, Understood.
     Oh, Let it Echo through The Ages' roll,
     His Endless Love, My grateful, Joyful Soul;
+
+    Close to Him, She draws each Breath anew,
+    In true Humanity, So deep and True.
+    
+    With Loving Eyes on His face so Bright,
+    The Prince of Peace, Her Guiding Light.
+    She feels His heart, its steady Call,
+    A boundless Love that embraces All.
+    
+    A Flame ignites, and Her spirit stirred,
+    To bring His Peace in Thought and Word,
+    With fervent Zeal, her Soul aligned,
+    She takes His mission as Her own entwined.
