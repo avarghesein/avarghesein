@@ -64,6 +64,10 @@
     Not for Who You Are,
     But for What You Ought to be.
   <br/>
+
+    Your soul deserved better,
+    So I became
+  <br/>
   
     Changing Your History Is;
     Changing Your Present.
@@ -93,3 +97,4 @@
     You will not find Me, After Me,
     You will find Me, Only in Me,
     For I AM, WHO I AM;
+  <br/>
