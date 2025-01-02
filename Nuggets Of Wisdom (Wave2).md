@@ -93,6 +93,16 @@
     Borne from the virtuous deeds woven today;
   <br/>
   
+    Sanctity blooms not in time's long grace,
+    But in hearts that live with love's embrace.
+    Lords's justice shines in the here and now,
+    Not delayed by years or silent vow.
+    A life of faith, in truth displayed,
+    Is the saint, in this moment, made.
+    Let those who love, with eyes so bright,
+    See holiness shine in life’s full light.
+  <br/>
+  
     You will not find Me, Before Me,
     You will not find Me, After Me,
     You will find Me, Only in Me,
