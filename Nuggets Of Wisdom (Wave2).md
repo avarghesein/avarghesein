@@ -108,3 +108,9 @@
     You will find Me, Only in Me,
     For I AM, WHO I AM;
   <br/>
+
+    I hold The Start, I hold The End,
+    In My Depths, All Paths blend.
+    What AM I, where Worlds begin and cease,
+    A Silent keeper of Timeless Peace.
+  <br/>
